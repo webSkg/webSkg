@@ -9,7 +9,7 @@
 
 - 💬 Ask me about **Blockchain, Solidity**
 
-- 📫 How to reach me **Sudhhanshu.it@ramaera.in**
+- 📫 How to reach me **iskdwivedi@gmail.com**
 
 - 📄 Know about my experiences [3](3)
 
